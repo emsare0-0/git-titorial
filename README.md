@@ -1,3 +1,3 @@
-Emma Sare emsare weehaha
+Emma Sare emsare UChicago CS git tutorial
 
 
